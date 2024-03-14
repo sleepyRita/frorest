@@ -5,4 +5,13 @@ okok
 
 # kokoko
 
-> jok
+> jo
+
+
+
+
+daw 
+
+
+a
+wd
